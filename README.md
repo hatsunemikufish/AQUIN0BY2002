@@ -1,2 +1,7 @@
-![1000009562](https://github.com/user-attachments/assets/d2650c49-c431-436a-8153-bf39fe8e2950)  . 𝐰𝗂𝗽 𝗮ɢa𝐢𝗇 ![1000009518](https://github.com/user-attachments/assets/3bac5ccf-728c-411d-96f3-454c132e1ba0)
 
+ $${\color{#FFCDB2}\text{𝗿𝗂ᴄh 𝐨𝕣 𝗻𝕪𝘦𝐧 𖹭  }}$$
+$${\color{#FFB4A2}\text{𝐠𝕚𝘃𝖾 𝗆𝗲 𝕝𝐨ᴠe m𝐲 𝗱𝖺ʀ𝕝𝐢𝚗g  ۫ ׅ }}$$
+
+![1000009629](https://github.com/user-attachments/assets/c5957a96-2ff2-4320-bb00-f87689afde3c)
+
+$${\color{#E5989B}\text{3𝐭𝕖𝗲𝗇ㅤ♡ㅤ 𝗮𝗎𝕓𝐫𝚎e 𝗸𝚒𝐧n𝗂𝕖 }}$$
